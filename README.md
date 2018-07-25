@@ -1,6 +1,6 @@
-# iav6
-## 2018.07.23 update
+# 爱情岛论坛最新网址
+2018.07.26 update
 
-### http://iav20.com
-### http://iav22.com
-### http://iav23.com
+### http://aqd555.com
+### http://aqd777.com
+### http://aqd999.com

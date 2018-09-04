@@ -1,6 +1,6 @@
 # 爱情岛论坛最新网址
-2018.07.26 update
+2018.09.04 update
 
-### http://aqd555.com
-### http://aqd777.com
-### http://aqd999.com
+### http://www.aqd111.com
+### http://www.aqd222.com
+### http://www.aqd333.com
